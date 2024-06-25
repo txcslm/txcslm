@@ -1,7 +1,7 @@
 
 ## Intro  
 <div align="center">
-<img src="https://pictures.pibig.info/uploads/posts/2023-04/1682113708_pictures-pibig-info-p-gats-risunok-vkontakte-58.jpg" align="center" style="width: 100%" />
+<img src="https://sun9-7.userapi.com/impg/pnmoWExJa_lOGcf1ytfgXPSXgwCVo67zV0Su6g/VdcTpHBCqD8.jpg?size=1280x720&quality=96&sign=2d05668f0e682a32a82758215ec1e7f0&type=album" align="center" style="width: 100%" />
 </div>  
   
 
