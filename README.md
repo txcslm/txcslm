@@ -8,7 +8,7 @@
 ### <div align="center">My name is [Vladimir](https://t.me/ouroboross), i`m Unity Developer.</div>  
   
 
-<div align="center">🦍 Currently studying ECS (Entity Component System) and architectural patterns.</div>  
+<div align="center">🦍 Currently working at RedBoon.</div>  
   
 
 <br/>  
